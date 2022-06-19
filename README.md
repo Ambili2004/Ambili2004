@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ambili2004
 - 👀 I’m interested in coding,book reading,learn new language 
-- 🌱 I’m currently learning bca (bachelor of computer application)
+- 🌱 I’m currently doing my graduation in bca (bachelor of computer application)
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me by 
 - insta:- @mickeyamu
